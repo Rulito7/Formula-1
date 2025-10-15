@@ -28,9 +28,6 @@ nos informa de los mejores adelantamientos de la historia
 2023 – Las Vegas – Leclerc a Pérez (T14, última vuelta): frenada tardía por el segundo puesto en el desenlace.
 ¿Quieres que lo convierta en una lista “para ver” con enlaces y marcas de tiempo on-board (cuando existan)? También puedo añadir un mapa de curvas por cada maniobra.
 
-SI, y añademe mas de alonso
-Thought for 87s
-He convertido la guía en una lista “para ver” con enlaces de búsqueda (evito URLs específicas porque cambian o quedan bloqueadas). Incluyo la marca como vuelta/curva para ubicar el onboard; el minuto exacto varía según el vídeo.
 
 Playlist: adelantamientos legendarios (orden cronológico)
 1953 – Francia (Reims) – Hawthorn a Fangio
